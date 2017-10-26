@@ -1,2 +1,0 @@
-hifwikefnkd cknik
-njncklsml
